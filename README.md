@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jabrul
-- 👀 I’m interested in ...
+- 👀 I’m interested in financial markets and car modifications.
 - 🌱 I’m currently pusuing B.Tech CSE from NIT Mizoram
 - 📫 How to reach me , e-mail-Jabrulalam4256@gmail.com
 - ⚡ Fun fact, I am a strange guy who loves unplanned trips, unplanned events and enjoys alot :)
